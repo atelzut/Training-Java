@@ -1,0 +1,1 @@
+# checker-lotteria-scontrini
